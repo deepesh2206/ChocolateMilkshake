@@ -1,0 +1,3 @@
+How to make chocolate milkshake :-
+
+Add sugar and cocoa powder to a blender jar along with milk.Blend it until cocoa dissolves completely. Add milk ice cubes,cinnamon if desired and blend well again until frothy. If you wish to decorate your glass,then melt some chocolate and pour it on the sides of the glass from inside.You can also use some thick chocolate syrup. Pour chocolate milkshake to a serving glass and garnish with grated chocolate or ice cream. Serve chocolate shake immediately as the flavor of cocoa changes as time passes by.

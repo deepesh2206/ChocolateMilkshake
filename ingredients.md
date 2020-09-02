@@ -1,0 +1,1 @@
+200 to 250ml milk full fat & chilled. 5 to 6 ice cubes or milk ice cubes. 1 to 2 tbsp sugar or jaggery or maple syrup. 1 tbsp cocoa powder. 1 tbsp grated chocolate or ice cream. 1/2 tbsp pure cinnamon. (optional) 1 tbsp chocolate syrup.(optional)
